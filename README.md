@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @hellfire76
+- 👋 Hi, I’m @genesishenrique-ai
 - 👀 I’m interested in ...Marketing, Inteligência Artificial e Qualidade de Vida Real.
 - 🌱 I’m currently learning ...Inteligência Artificial
 - 💞️ I’m looking to collaborate on ...nicho de Marketing e IA.
